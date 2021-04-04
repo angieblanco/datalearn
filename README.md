@@ -2,4 +2,4 @@
 
 Hi everyone,
 
-This is Angela, a markeetr looking to get into data
+This is Angela, a marketer looking to get into data
